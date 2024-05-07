@@ -23,4 +23,4 @@ im 10 jears old (:
 
 # Download Link:
 
-https://www.mediafire.com/folder/ybijwtocz7ej2/PindaLock
+https://drive.google.com/drive/folders/1BslGb6IuvUifMrwaKIZkM-PhzhHf8APK?usp=sharing
