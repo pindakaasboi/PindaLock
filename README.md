@@ -19,3 +19,8 @@ bruh you can littarly close it by powering off pc
 
 First screenlocker
 im 10 jears old (:
+
+
+# Download Link:
+
+https://www.mediafire.com/folder/ybijwtocz7ej2/PindaLock
